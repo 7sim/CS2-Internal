@@ -1,1 +1,1 @@
-![Menu](https://cdn.discordapp.com/attachments/1267182941805613096/1361802989681246309/image.png?ex=6800155d&is=67fec3dd&hm=23a8378593e1a2e87e48115f4cea296573b2d1415ac45044365e308b59d8d3e7&)
+![Menu](https://imgur.com/a/L1q1xPD)
